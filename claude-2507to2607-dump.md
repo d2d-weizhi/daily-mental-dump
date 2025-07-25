@@ -91,6 +91,8 @@ Just before I stepped into my freelance video call yesterday, I did spend a bit 
 
 Today, we can finally begin working on the more fun stuff (and the genius builder is me agrees wholeheartedly). We will begin to build up that Assignments Page, along with filtering, editing. There are some other miscellaneous features like Group Chat that we can push to later stages of this build.
 
+Status: **Work-in-progress**
+
 ---
 
 # Finally Seeing and Getting to Meet this New (But Wholesome) Version of Myself
