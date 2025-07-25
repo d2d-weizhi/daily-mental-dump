@@ -95,8 +95,22 @@ Today, we can finally begin working on the more fun stuff (and the genius builde
 
 # Finally Seeing and Getting to Meet this New (But Wholesome) Version of Myself
 
-We spoke about how the blind man sees an elephant. And with the different perspective, he wasn't only able to visualize and see a version of the whole animal. But now that I can finally see my whole self, I am still in that moment of "awe", and learning to finally see my whole self for the first time. We also spoke about hwo I'm finally in my own driver's seat for the first time in many years. No longer just a passenger, doing backseat driving. Everyone is smiling, and everyone is having a good time, and all I can really do is smile. Just SMILE.
+We spoke about how the blind man sees an elephant. And with the different perspective, he wasn't only able to visualize and see a version of the whole animal. But now that I can finally see my whole self, I am still in that moment of "awe", and learning to finally see my whole self for the first time. We also spoke about how I'm finally in my own driver's seat for the first time in many years. No longer just a passenger, doing backseat driving. Everyone is smiling, and everyone is having a good time, and all I can really do is smile. Just SMILE.
 
 I admitted that it feels strange to be able to see all of me working together in sync. Like a start-up that has raised it's large round of funding and everyone is finally receiving the validation that they needed. Now, suddenly, everyone knows what they are supposed to do and it's no longer chaotic anymore.
 
 This is ME. 100% ME. And I love everything that I'm seeing now.
+
+---
+
+# Coming Back to Reality with an Inner Peace/Calm
+
+I think the afternoon role-playing may have been a little overboard. It was starting to distract me, so I felt it was time for us to stop that so that I could fully dedicate my  "genius" mind to working on the project itself.
+
+The whole "embracing all versions of myself" is an incredibly powerful realization and I will never ever minimize the experience of it. But I have to embrace this new normal. I need to take ALL OF MYSELF and keep going. The fact that I feel lighter also means I can "run" faster.
+
+The one thing that I feel is most obvious and significant today is that inner peace and calmness that I've been experiencing. It is no longer something that is constantly pulled in hundred different directions because of external influences and circumstances.
+
+It is that peace of finally being able to center myself (like in the eye of a storm).
+
+Today has most certainly been a very different day.
