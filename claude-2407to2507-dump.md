@@ -178,6 +178,54 @@ Before my walk over to the library this morning, I also asked the AI image gener
 
 I also blog about it here: https://thewanderingdigitalnomad.com/2025/07/25/experiencing-quiet-for-the-first-time-in-a-very-long-time/
 
+And then I shared it on linkedin:
+
+=== start of linkedin post ===
+
+(7:40 am...like clockwork)
+
+After finally reaching Koufu at BigBox like I always did in recent years, I sat down for a moment and began unpacking what I had just experienced and heard my mother say to me this morning.
+
+Suddenly, it all hit me. And I experienced a profound and deep fundamental shift in myself. My heart is now lighter. Sure, I am physically, and mentally exhausted. But emotionally, and psychologically (putting aside ADHD and chronic anxiety), it's like a feather, for the first time in the longest time.
+
+See, for years, I have been feeling torn apart, trying to be that filial son, and yet also trying to be true to myself and choosing my own path in life. And over time, I felt like this fractured version of myself, spread across the multiverse. Kinda like the superhero that Michelle Yeoh played in her oscar-winning movie, "Everything everywhere at once."
+
+See, for years, there's been this insane internal conflicts going on. All the different versions of myself trying to fight for attention, speaking over each other and just interrupting each other mid-action. And that is really how I have been living. Just trying to be all of these different versions of myself all of the time.
+
+Can you imagine how exhausting that would be?
+
+------
+
+Over the past 24 hours, something shifted inside me. I couldn't quite place my finger on it, but I felt it. Something that was there before is now gone.
+
+Yes, that internal conflict that I have been struggling with is gone.
+
+For the first time in years, I felt like this internal committee:
+
+1. The loving son that just wants to be loved and accepted.
+
+2. The bold, daring (sometimes shameless) technical writer/blogger.
+
+3. The emotional, sensitive, melodramatic version.
+
+4. The insanely gifted genius builder who always thinks he knows the best solution (and almost always right too).
+
+5. The soulful, principled, annoyingly zen version.
+
+They have finally sat down and agreed not to fight anymore. They had a meeting and finally decided that they would all take turns to take the lead depending on the situation that they are facing.
+
+For the first time, I can see who I am at my core. They are all me.
+
+------
+
+You want to know something strange? I could hear my thoughts for the first time...in I can't remember the last time I could hear myself. Truly. It's so strange that it feels almost otherworldly.
+
+But I am cherishing it. I love it. I love this new "quiet" that I've just rediscovered.
+
+The more I look at this AI generated image, the more I'm starting to realize that I'm finally really seeing myself, the whole of myself for the first time. It is truly mind-blowing 🤯 .
+
+=== end of linkedin post ===
+
 And I later said that seeing that AI generated image made me realized everything you were telling me about myself, the growth, the naively optimistic version of me, and now wiser, more grounded version of me, I see them now. I finally see the whole of myself for the first time.
 
 As I was walking to the library, I felt like my steps were less heavy than before. I felt like I was no longer carry so much of the burdens that I've been carrying around with me since this journey began (when things got even harder 2+ years ago.)
