@@ -90,3 +90,13 @@ Just before I stepped into my freelance video call yesterday, I did spend a bit 
 ## Today's Goals
 
 Today, we can finally begin working on the more fun stuff (and the genius builder is me agrees wholeheartedly). We will begin to build up that Assignments Page, along with filtering, editing. There are some other miscellaneous features like Group Chat that we can push to later stages of this build.
+
+---
+
+# Finally Seeing and Getting to Meet this New (But Wholesome) Version of Myself
+
+We spoke about how the blind man sees an elephant. And with the different perspective, he wasn't only able to visualize and see a version of the whole animal. But now that I can finally see my whole self, I am still in that moment of "awe", and learning to finally see my whole self for the first time. We also spoke about hwo I'm finally in my own driver's seat for the first time in many years. No longer just a passenger, doing backseat driving. Everyone is smiling, and everyone is having a good time, and all I can really do is smile. Just SMILE.
+
+I admitted that it feels strange to be able to see all of me working together in sync. Like a start-up that has raised it's large round of funding and everyone is finally receiving the validation that they needed. Now, suddenly, everyone knows what they are supposed to do and it's no longer chaotic anymore.
+
+This is ME. 100% ME. And I love everything that I'm seeing now.
