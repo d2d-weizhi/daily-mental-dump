@@ -59,8 +59,6 @@ And then earlier today, during a scheduled technical brief (deep-dive) with my c
 
 It didn’t register immediately for me, but after the call, and I finally got a chance to sit down, it finally started to sink in. Even though there is no time frame on when it could happen, it felt like a sign. A tiny little light at the end of the tunnel.
 
- 
-
 ---
 
 - https://thewanderingdigitalnomad.com/2025/07/23/cautiously-hopeful/
@@ -128,17 +126,9 @@ When I woke up this morning, this happened (rare moment consider my mother is no
 
 Mother: "Its only 6am, why are you up so early?"
 
-Me: "Because I want a better future (not just for me, but for us.) So I'm willing to endure [persevere] anything to get there. It (your wellbeing & happiness) will be worth it." 😢💪⛰️
+Me: I told her that I wanted to get out early because I have more work to do. But what I really meant to say is, "I am willing to do whatever it takes to succeed. Not because I just want a better future for myself, but because I am willing to do whatever I have to do for us to have a better future. I know it will be worth it."
 
-Mother: "I'm really proud to see the man that you have become, Weizhi."
-
-Me: "Thanks ma 🥲. I wont be home for dinner tonight. I'll take care of my own meals today."
-
-(Moments after leaving the house, I got a voice call from my mother...)
-
-Mother: "韦志，你要记住，只有那些有意志力的人才会成功的。你可以的。不要放弃。加油。" (Weizhi, you must remember, it is only those with the will, determine and perseverance to endure the greatest challenges that will find success. I know you can do it. Don't give up. Keep going.)
-
-Those were the words from my mother this morning. Eventhough it is not the direct translation, it is more of the tone she used, and what I felt because of how she said it.
+Even though my mother didn't really say anything, I could picture her in the background smiling. I certainly didn't see it, but it is just what I could sense. Maybe she is not very good at using her emotions to express herself. She never was good at that. But she does sometimes give compliments. But I feel like this was one of those quiet/silent compliment moments.
 
 hashtag#grit hashtag#hope hashtag#cautiouslyhopeful hashtag#passion hashtag#purpose hashtag#ikigai hashtag#hustling hashtag#findyourownhustle hashtag#perseverance hashtag#family hashtag#values hashtag#priorities hashtag#whateverittakes
 
