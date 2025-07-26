@@ -31,4 +31,12 @@ https://thewanderingdigitalnomad.com/2025/07/26/welcome-to-my-humble-weekend-hus
 - But I also acknowledge that this is the empathy, sensitive side of who I am. I miss spending time at home on the weekend, closer to my parents.
 - Instead, I am out here, hustling, doing all that I can to make life better, not just for myself, but also for them.
 - As I walked back to the library, I reminded myself that this desire/need to succeed is not about serving my own ego or pride. This is not just about me anymore. This is about us.
-- I know the fastest way for me to reach my goal is to focus on doing the things that I'm most passionate about and then exceling at them.
+- I know the fastest way for me to reach my goal is to focus on doing the things that I'm most passionate about and then excelling at them.
+
+## Mid-day Thoughts & Reflections
+
+- why do I feel guilty for putting aside my anxieties and worries and commitments? It's not like I can deal with them directly right now.
+- if I have to use the analogy of an overzealous news reporter standing outside the door, it's like the bouncer is keeping her and the rest of my anxieties out, but I can still hear them in the background as I try to focus on what I can control and do.
+- I know that this peace and calm is genuine. It is internal.
+- I also know that just because I've learned to accept myself as whole, my troubles and challenges won't just disappear. And that is also okay.
+- I'm glad I bought the Redondo Creme Wafers as snack. Sinful, but a worthy snack to keep my going during my weekend hustling. Time to enjoy 1 or 2 sticks 😜. 
