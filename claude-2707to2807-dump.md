@@ -27,3 +27,13 @@
 - The very same way that I worked on Satori PageBuilder for 5 weeks and then wrote an article about it. Results.
 - I choose to recognize all of my worries and concerns. I'm just refusing to allow them to hijack my focus and agenda anymore.
 - They will have their time (when I am ready to face them and deal with them properly).
+
+## Lost Track of Time (Again!!)
+
+- Yeah yeah, I know. But hey, at least I made some pretty awesome progress this afternoon.
+- Geez, I think I went from 2pm non-stop all the way till 7pm.
+- 5 hours might not seem like much in dev-hours, but when I think about the amount of work (most importantly, the quality), I am genuinely quite impressed with how much I was able to accomplish in 5 hours. On top of using a slow Raspberry Pi 4.
+- It is truly nice to be able to just stay fully present while I work. Like, in spite of all the potential anxieties and worries and genuine concerns, I was able to stay fully **IN THE ZONE** today.
+- Looking forward to my unpacking session before I get my haircut this evening.
+- Gotta be honest, I am looking forward to dinner tonight at home, but I'm not sure I am ready to go home and face those responsibilities, stressors and ...yeah.. *deep breathes*
+- Anyway, I can only choose to focus on the things I can control. And maybe that is really the best I can do right now. It has to be enough.
