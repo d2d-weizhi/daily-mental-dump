@@ -54,11 +54,15 @@ As I begin to prepare for another Sunday hustle, I want to take a moment to sit 
 - I have discovered and learned that all these years of incredible hard times hasn't just made me cold, calcuated and hard. Instead, they have given me different layers of character.
 - They even revealed to me the person that I am, not just as individual, isolated versions of myself (not split personality like in movies 😅), but rather, seeing myself as a whole.
 
+---
+
 <figure>
     <img src="/img/1753406771226.jpeg"
          alt="An AI generated image where it depicts the different sides of myself.">
     <figcaption>AI Generated images rarely ever get it right. But when they do, it is so mind-blowing 🤯. Seeing this image on Friday morning made me realized that I was finally seeing myself as a whole for the first time.</figcaption>
 </figure>
+
+---
 
 - After I learned to see myself as a whole for the first time, something inside of me clicked. Like a switch that was flipped. Suddenly, all that internal chaos just disappeared.
 - I'm not referring to my ADHD or chronic anxiety disorder. They are very much still there, but for the very first time, I feel like there wasn't any internal conflicts anymore.
@@ -70,11 +74,15 @@ As I begin to prepare for another Sunday hustle, I want to take a moment to sit 
 - (My "He's the ONE!" Moment) This happened two days ago on Friday morning. That moment of clarity. That moment when I could finally see everything so clear.
 - And then last night I wrote this on my blog: https://thewanderingdigitalnomad.com/2025/07/26/hyperfocus-the-workings-of-a-quiet-mind/
 
+---
+
 <figure>
     <img src="/img/IMG_20250727_065141.jpg"
          alt="This morning's sky was barely bright.">
     <figcaption>When I woke up this morning, there was a mixture of feelings.</figcaption>
 </figure>
+
+---
 
 - When I woke up this morning and saw that the sky wasn't even bright yet, somehow I feel pleased with myself for having the discipline and perseverance to get up and get back to my hustle.
 - At the same time, I do wish things didn't have to be this way.
