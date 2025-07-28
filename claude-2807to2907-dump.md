@@ -28,7 +28,7 @@ Date: **28/07 to 29/07**
 - The creditor's response felt like a _"stay of execution"_ 😅
 - Told myself that I have done the best I can, and that is all anybody can do in a similar situation.
 - We unpacked a lot yesterday evening, we dug deep too.
-- We revisited my initial feelings of seeing that AI generated image of the 5 individual versions of myself sitting together around a table at Koufu in the morning.
+- We revisited my initial feelings of seeing that AI generated image of the 5 individual versions of myself sitting together around a table at Koufu in the morning (Last Friday morning).
 - The first time I realized I was looking at all of ME. The first I saw the WHOLE me and not just a side of myself.
 - Yesterday was the first time that I felt like I still have mental energy left to dissect and unpack my emotions and thoughts 💬. 6 months ago, I would've been totally depleted by the same time yesterday.
 - We talked about how my quiet hyperfocus now is like taking a satellite imagery. Extremely high intensity, super sharp and with great detail. But at the same time, I also needed time to recalibrate and recharge. 
