@@ -23,7 +23,7 @@ Date: **28/07 to 29/07**
 ## Evening Mental Dump: Slow, but Purposeful
 
 - Yesterday, I called my creditor after I finished my objectives for the day.
-- I created boundaries and when the time was right, I gave the attention that I promised.
+- I created boundaries and when the time was right, I gave the attention that I promised. I blogged about it here: https://thewanderingdigitalnomad.com/2025/07/28/heres-how-ive-learned-to-manage-my-self-doubts-and-anxieties-shorts/
 - I didn't quite get the response I had hoped, but I know that at least I had the courage to face it head on.
 - The creditor's response felt like a _"stay of execution"_ 😅
 - Told myself that I have done the best I can, and that is all anybody can do in a similar situation.
