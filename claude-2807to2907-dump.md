@@ -51,3 +51,22 @@ Date: **28/07 to 29/07**
 - I told her that I will take care of it the moment that I can (and it is 100% true).
 - during my morning walk over to Koufu, I took a moment to speak to my anxieties and worries and thoughts.
 - I said, _"Hey guys, look, I know how important you are. And honestly, you guys deserve my fullest attention and focus, the same way that my work does. But I need you to cooperate with me today. Look, I know that I only have one client, one project right now. I know it is risky, me putting all I have into him. I know there are no guarantees, no promises. But I also know that when we only have this ONE good thing, we have to make the most, the best of it. We've done it before, remember? So, I really need you all to trust me that I am doing everything I can to address these commitments. And yes, I am choosing to take a different approach this time. No more rushed, rash short-term measures. Instead I am doing everything that I can to build a more long-term sustainable income. But that takes some time. We might not be able to see or experience it right now, but trust me, I know it will be worth it. So, please, when I want to focus on my tasks for today, I ask that you do not interrupt my focus. When I am ready, I promise you, I will give you all the energy and focus that you deserve."_
+- Today, I saw my more melodramatic and yet empathetic side for the first time. Turns out, he isn't as "emo" as I always thought him to be. I kept cutting him off each time he tried to express himself.
+- Turns out, he is incredibly intelligent (in an emotional way). Also great story teller too. Turns out, when I gave him space to truly express and be himself, he can be incredibly wise at times too.
+
+### My Official Coming Out Party: Introduction v2.0
+
+- This morning was important to me because it is the first time that I am announcing myself to the world.
+- It is the first time that I am showing the world every single side of me, in its entirety and no just a filtered version that I want them to see.
+- I wrote one of my most impactful LinkedIn posts ever since I joined the platform in 2013.
+- When I say impactful, I don't mean engagements or likes. I mean, the way the post is intended to be conveyed by those reading it.
+- I wanted this post to trigger people to really look within themselves. To think about whether or not they have been hiding part of themselves in order to present a version that they think the world would approve of or accept.
+- I believe I've done that and in the most thought-provoking way possible. 
+- As I packed up and made my way over to the library, a lady stopped me on the sky bridge between BigBox and Jem. She needed help with directions.
+- 3 months ago, I would've contemplated whether to help her or even if I did, it would've felt insincere at best.
+- but now, knowing how to better manage my anxieties and being fully in sync with my whole self, it has made me lighter and have that mental and emotional capacity to stop and help that lady.
+- I walked away feeling good because I know I have helped to make that lady's day.
+- As I begin my dev session today, I am happy to say that I am consciously bringing the whole of me into it.
+- Maybe Mr. Genius will still be doing most of the work during these highly intensed focus sessions, but I know the rest of me will still be here, fully present, quiet, but supporting from behind.
+- I feel **FREE** now that I have finally revealed who I am as a whole to the rest of the world. 
+- I also acknowledged that I can't control what the outcome of today's call will be, but I've accepted that whatever the news may be, the best parts of me will know how best to handle it in the right way.
