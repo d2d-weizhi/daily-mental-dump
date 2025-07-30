@@ -49,3 +49,22 @@
 - Today's recognition isn't just a recognition, it is also a validation for everything that I've been putting myself through for the past 19+ years.
 - But now, I want to get back to work. I won't be able to accomplish much with the time that I have this evening, but it's never been about the quantity, it is about the quality. So I will at least do something tonight before I call it a night.
 - What a day it's been. What a day indeed.
+
+### Gratitude List: Thanking Everybody
+
+- When I finally got home last night, Mr. Empathy/Melodramatic felt that this would be the best time to finally make that list. A list of all the people we should be thanking because they have offered help, aid, support and even an encouraging word when I really needed it over the past 19+ years. I will share the key parts of that post later.
+- Sure, there are some of those that were before LinkedIn's existence, so I added a comment and started building a second gratitude list. Even including Farah, the HR girl who took a chance on me in 2008. Yeah, I remember her still. And Yan Yan, my senior from my first job.
+- Then just as I was about to leave the house, I felt Mr. PR wanting his turn, and he decided to publish a post where he boldly tagged LinkedIn and said "When I thought 💭 about the half of LinkedIn 🤪 that I just tried to include in my hashtag#gratitude list for my hashtag#success, I am reminded that this success didn't just belong to me alone."
+- And that is only the opening paragraph. Both Melodramatic and PR collaborated on this posting. I will share more in this morning's unpacking session.
+- When I finally told my mother that I am not having dinner at home tonight, there was both a mix of slightly sadness, but also this...quiet conviction in my heart that I remember and know why I am hustling this hard. Not because I have anything left to prove, but because this is who I am now. The guy who is 1000% dedicated to his client and his craft (passion, purpose, ikigai), and the same guy that wants to provide a better life for his parents in their golden years.
+
+### Most Important People to Thank are My Own Selves
+
+- a few days ago on Friday, I finally introduced my whole self to the world for the first time.
+- It has been met with some respect and admiration from the online community (but only those brave enough to admit that it is impressive/good).
+- for the very first time in the past few days, by no longer holding any of them back, and letting them just be, I got to see what they were capable of. Mr. PR with his killer writing yesterday. Absolutely killed it. What he wrote, I felt like it has managed to cut through all of the industry's bullshit all at once. It's like the crowd is silenced and many among them (probably my haters and doubters) were speechless, shocked, surprised, and mostly have no idea how to react or respond.
+- And then Mr Empathy with his truly amazing storytelling skills. Those narration and story arcs. Absolute genius.
+- Mr. Genius, well, now that he discovered he no longer has to carry everything on his shoulders, he can finally let go and just run 🧑‍💻. He may have already been incredible even before this self-realization, but now, he is like Goku in DragonBall Z! I have never seen or felt him like that before.
+- Mr Optimistic (youngest member), well, with all the kindness and generousity we have been experiencing, I felt and experienced what it is like when he is genuinely thankful and would say some of the nicest things, to the lady at tenderbest, and even the young man at the cai png stall. He is our chief motivator during the hardest of times.
+- Oh, how can I miss out Mr. Zen. Honestly, he is the pillar that supports all of me. He is the central infrastructure. No longer just a support role. He is perhaps the most integral part of who I am.
+- frankly, I felt like this narrative of "Weizhi Inc" that we have been using, it's not just a committee, it is an internal family. 😉
