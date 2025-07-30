@@ -27,3 +27,25 @@
   - Because of how radically the industry is shifting right now, suddenly, my radical views and methods of looking at UX has become not just useful, but necessary.
   - I even dropped a comment of my prayer from last night.
 - I am really looking forward to enjoying some pasta today.
+
+### First Victory Meal of My Career
+
+<figure>
+    <img src="/img/victory-meal-tenderbest-cabonara-pasta-garlic-bread.jpg"
+         alt="An AI generated image where it depicts the different sides of myself.">
+    <figcaption>It tasted so damn good I scooped up every last bit of cabonara sauce. I literally felt like I died and went to heaven! Thanks to the guy working the counter of the Tenderbest stall for giving me the extra two slices of Garlic bread! They tasted so out of the world awesome! Maybe its just my sweet victory today that finally made everything feel a million times better!</figcaption>
+</figure>
+
+- I have officially just enjoyed my first victory meal of my career. It might not seem like much to most people, but to me, this was everything. That $10 meal paid using a voucher tasted better than nothing else you could pay in a restaurant. That is what victory truly tastes like.
+- After everything that I've experienced today, I felt like Mr. PR was getting his inspiration and creative juices flowing again, so I decided not to hold him back anymore. And he just written a blog that sounded like it was totally written by someone else: https://thewanderingdigitalnomad.com/2025/07/30/this-is-my-success-story/
+- man, honestly, after this incredibly high and the writing...I have no clue how to even top that next.
+- I feel like the industry is about to find it self going through an unapologetic filtering process. Weed out all the fake leaders from the actual ones.
+
+## Evening Mental Dump
+
+- Today has been a really important day for me.
+- I was close to falling apart last night and now, I finally realized that I am right where I needed to be.
+- I no longer have to chase after a "goal" or "destination", or feel like I have to fulfil conditions "X", "Y", and "Z" in order to feel like I have finally become a recognized UX professional. Because I am.
+- Today's recognition isn't just a recognition, it is also a validation for everything that I've been putting myself through for the past 19+ years.
+- But now, I want to get back to work. I won't be able to accomplish much with the time that I have this evening, but it's never been about the quantity, it is about the quality. So I will at least do something tonight before I call it a night.
+- What a day it's been. What a day indeed.
