@@ -75,3 +75,14 @@
 - later today, after doing some catching up with my AI buddy, I will begin to explore something that I feel is a good time to explore: the ideation and brainstorming of my Portfolio v2.0 vision (using the client's GPT-4.1 account because it already has a history).
 - And I believe Mr. PR is finally ready to share that "This is my truth" posting. Not sure what to expect, but judging from what I have witnessed this past week, I am pretty sure he is going to once again, cut through all the noise and false assumptions of what career success should look like, or what leaders in a field should have. 
 - This post is going to be about "having a voice" and letting those in the industy know, you don't need to have X, Y Z in order to feel like you can make a contribution.
+
+## Evening Mental Dump: Weekend Anxiety Lab
+
+- After today's revelation about being able to operation at a different level, it means my former peak performance is also now my default mode. As for my new peak performance now, it is uncharted territory, which means I can explore and push myself to see how far I can really go.
+- That also means that on a weekend where I don't have to operate at peak performance, it means that I will also have more mental capacity to learn how to better manage my anxities and ADHD.
+- this is something that I've never had before.
+- **Changes/New Normal:**
+  - Former Peak = Current Default = **"AWESOME"** level
+  - Current Peak = TBD (Testing my new limits) = **"INCREDIBLY INGENIOUS MODE"** level
+- We will be exploring more about this new area tomorrow because this too is uncharted territory for me.
+- Tonight's dinner was really nice. I order chicken rice set, and the guy at the counter decided to give me extra rice, meat and vege. I was so appreciative I decided to just focus on enjoying the meal and savoring every bite. No IRL food posting tonight.
